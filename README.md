@@ -8,3 +8,7 @@ https://chatgpt.com/
 https://www.bing.com/images/create?cc=br
 
 https://www.microsoft.com/pt-br/microsoft-365/powerpoint
+
+# Livro e-book
+[Presentation - Copiar 1 (1).pdf](https://github.com/user-attachments/files/18043587/Presentation.-.Copiar.1.1.pdf)
+
